@@ -90,3 +90,48 @@ To our community—thank you. Thank you for believing in Raiseacad, for sharing 
 As the sun sets on this 20,000-word odyssey, remember: We’re not just raising the bar; we’re raising each other. 🚀🌟
 
 
+
+
+
+
+YOUTUBE CHANNEL
+
+
+
+Raiseacad: Unleashing the Power of JEE and NEET Preparation
+Introduction
+Welcome to Raiseacad, where equations collide, molecules harmonize, and dreams take flight. Aspiring JEE (Joint Entrance Examination) and NEET (National Eligibility cum Entrance Test) warriors, this is your launchpad. Buckle up—we’re about to explore a universe of knowledge. 🚀
+
+1. The Genesis: Yash Mishra’s Brainchild
+Three years ago, Yash Mishra (NITK Surathkal) ignited a spark. He envisioned a platform that would transform how students prepare for JEE and NEET. Raiseacad emerged—a digital sanctuary where algorithms dance, organic reactions unfold, and physics defies gravity.
+
+2. The Raiseacad Galaxy
+a. Tech Talks and Workshops
+Our YouTube channel hosts tech talks that teleport you to virtual auditoriums. Imagine Prateek Gupta Sir (IIT-Bombay) unraveling organic chemistry mysteries. Picture NLM (Variable Mass Systems) explained with examples. Whether you’re grappling with thermodynamics or decoding functions, Raiseacad has your back.
+
+b. Organic Chemistry Unleashed
+Prateek Gupta Sir’s lectures are alchemical journeys. Aromatic compounds, stereochemistry, and reaction mechanisms come alive. Bonds break, electrons dance, and students exclaim, “Eureka!” This isn’t just chemistry; it’s magic.
+
+c. Physics: From Newton to Quantum
+Raiseacad’s physics playlist is a symphony of vectors, waves, and particles. NLM (Non-Linear Motion) becomes your ally. Variable mass systems reveal their secrets. Whether you’re calculating escape velocity or pondering black holes, we’ve got your cosmic coordinates.
+
+d. Mathematics: Where Numbers Waltz
+Mathematics isn’t a subject; it’s a language. Raiseacad’s math wizards decode calculus, algebra, and differential equations. Limits approach infinity, integrals unveil areas, and matrices transform reality. Whether you’re plotting curves or solving Laplace transforms, our chalkboard awaits.
+
+3. The Raiseacad Constellations
+a. Comment Section Chronicles
+Our comment section is a celestial forum. Students from Mumbai to Manipur share doubts, seek clarifications, and celebrate breakthroughs. Expert tutors—our unsung heroes—respond promptly. It’s a cosmic dance of curiosity.
+
+b. The Raiseacad Club NITK
+Raiseacad isn’t just virtual; it’s tangible stardust. The Raiseacad Club at NITK (National Institute of Technology Karnataka) hosts hackathons, coding contests, and late-night epiphanies. Here, friendships form, algorithms bloom, and dreams crystallize.
+
+4. The Cosmic Blueprint
+Raiseacad’s roadmap twinkles with promise:
+
+Interactive Quizzes: Gamify learning with quasars of questions.
+Live Problem-Solving Sessions: Solve differential equations in real time, guided by cosmic experts.
+Collaborations with Celestial Institutes: IITs, AIIMS, and NITs—brace for cosmic synergies.
+5. Conclusion: Beyond the Event Horizon
+Raiseacad isn’t just a YouTube channel; it’s a cosmic voyage. Subscribe, hit the notification pulsar, and let’s script equations that echo through quasars. In this Raiseacad universe, knowledge isn’t power—it’s the warp drive to your dreams.
+
+Remember: We’re not just raising the bar; we’re raising constellations. 🌌🌟
