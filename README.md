@@ -1,6 +1,10 @@
 Raiseacad: Revolutionizing Learning, Empowering Minds
+
+
 Table of Contents
+
 Introduction
+
 The Genesis of Raiseacad
 Our Vision and Mission
 The Raiseacad Ecosystem
